@@ -1,2 +1,4 @@
 # Day-0
-I found my way
+shanbe , 29 , dey , 1403
+I found my way!
+my story will shared here
